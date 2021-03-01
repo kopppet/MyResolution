@@ -1,0 +1,2 @@
+# MyResolution
+Resolusiku tahun ini
